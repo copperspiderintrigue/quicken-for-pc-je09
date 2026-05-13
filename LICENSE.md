@@ -1,4 +1,4 @@
-# 
+# exclusive Quicken for PC | Quicken for Windows Extension | budgeting + receipt-capture is the best Quicken for PC | Quicken for Windows extension, featuring budgeting and
 
 
 
